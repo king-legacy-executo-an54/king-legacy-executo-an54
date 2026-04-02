@@ -1,4 +1,4 @@
-
+baddies auto Scripts Free: auto-win & inf-health brings you the best free scripts for baddies, featuring auto-win and inf-health. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
